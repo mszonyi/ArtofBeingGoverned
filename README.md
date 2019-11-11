@@ -1,4 +1,4 @@
-# Art of Being Governed
+# Art of Being Governed  《被统治的艺术》
 
 谢谢你对《被统治的艺术》中文版的兴趣。被删掉的原文如下:
 

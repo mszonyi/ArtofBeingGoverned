@@ -1,6 +1,8 @@
 # Art of Being Governed
 
-谢谢你对《被统治的艺术》中文版的兴趣。被删掉的原文如下：
+谢谢你对《被统治的艺术》中文版的兴趣。被删掉的原文如下:
+
+[Thank you for your interest in the Chinese edition of The Art of Being Governed.  The original text of the censored passages in the book follows：]
 
 第329页
 
